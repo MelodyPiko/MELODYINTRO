@@ -9,4 +9,4 @@ Hello ! If you see this , please read the strawpage first before intereacting wi
 <br> CURRENT INTERESTS : ... PJSK , FRAGARIA MEMORIES , ART , VOCOLOID / VOCAL SYNTHS .. MORE ? 
 <br> ON PT I ... 
 <br> <b>Host</b> Creation Clouds OC Maker , Future Sparks Academy PTKG
-<br> <Moderate For</b> Kurage University PTKG (By Zer0gami), Hope's Peak Academy PTKG (By Danny)
+<br>Moderate For</b> Kurage University PTKG (By Zer0gami), Hope's Peak Academy PTKG (By Danny)
